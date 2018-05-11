@@ -19,7 +19,7 @@ Nothing to say.
 
 * GitHub：[96chh](https://github.com/96chh)
 * email：chanwoood@163.com
-* 简书：[一块大番薯](https://www.jianshu.com/u/80c049e26962)
+* 语雀：[chwod](https://yuque.com/chwod)
 
 欢迎来撩~
 
